@@ -1,4 +1,4 @@
-능재 프로젝트 ultimate #1
+Project Neunglize #1
 
 능재 포스터를 업로드합니다.
 일주일에 최소 2회 업로드 예정
